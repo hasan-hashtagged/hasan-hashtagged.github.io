@@ -10,5 +10,5 @@ So, let this be a dump to all my random musings and random hours that will be ex
 </p>
 
 <p>
-Let this be the beginning of a wonderful journey(at least for me). I will hope that someday this amuses you too.
+Let this be the beginning of a wonderful journey(at least for me). I will hope someday this amuses you too.
 </p>
